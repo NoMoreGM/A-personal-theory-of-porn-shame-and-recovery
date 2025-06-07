@@ -1,8 +1,6 @@
 # Borrowed Numbness  
 _A personal theory of porn, shame, and recovery_
 
-> "The shame wasn't from my body — it was from borrowing someone else's numbness."
-
 ---
 
 ## Introduction
@@ -112,9 +110,6 @@ That means:
 - Feeling discomfort without a digital shield.  
 - Honoring sexual energy without outsourcing emotion.  
 - Accepting that real pleasure takes strength, effort, and presence.
-
-Recovery doesn’t mean purity.  
-It means **agency**.
 
 ---
 

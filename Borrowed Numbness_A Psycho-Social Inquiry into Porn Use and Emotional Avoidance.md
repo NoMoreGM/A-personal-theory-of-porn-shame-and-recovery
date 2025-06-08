@@ -13,6 +13,7 @@ It explores the underlying emotional mechanisms behind compulsive pornography us
 
 Pornography is not universally consumed for erotic stimulation.
 For many, it functions as a psychological sedative — a means of self-soothing in moments of:
+
 - Psychological stress or instability  
 - Emotional fatigue or internal conflict  
 - Isolation or diminished personal agency
@@ -26,6 +27,7 @@ The relief lies not in stimulation, but in detachment.
 
 This paper introduces the term borrowed numbness to describe the unconscious adoption of emotional detachment, often modeled in pornographic media.
 Many portrayals, especially of female actors, are characterized by:
+
 - Emotional passivity  
 - Absence of resistance  
 - Suppressed affect
@@ -41,6 +43,7 @@ The emotional relief achieved is not self-generated — it is borrowed from the 
 The human brain seeks emotional regulation and dopaminergic balance.  
 When overwhelmed, it does not inherently distinguish between adaptive coping strategies and escapist behaviors.
 Pornographic content offers: 
+
 - Immediate gratification  
 - Controlled visual environments  
 - Absence of emotional reciprocity or vulnerability
@@ -55,9 +58,11 @@ Over time, this fosters external dependency for regulation and impairs the devel
 Conventional narratives around porn-related shame emphasize morality or impurity. 
 However, a more accurate lens for many individuals is emotional outsourcing — the evasion of self-accountability via mediated detachment.
 Conventional framing:
+
 - “I masturbated — therefore I feel shame.”
 
 Reframed understanding:
+
 - “I used the emotional vacancy of another person as a buffer from my own distress.”
 
 The shame stems less from the act itself, and more from the subconscious recognition of instrumentalizing someone else's silence to escape one’s own.
@@ -68,6 +73,7 @@ The shame stems less from the act itself, and more from the subconscious recogni
 
 Absent pornography, the act of masturbation is fundamentally altered.  
 It becomes:
+
 - Physically demanding  
 - Emotionally revealing  
 - Devoid of passive stimulation
@@ -82,6 +88,7 @@ It reflects the recalibration of stimulus thresholds and emotional honesty.
 
 Recovery must be understood beyond mere abstention.
 It involves:
+
 - The cultivation of self-awareness  
 - The capacity to sit with emotional discomfort  
 - The disentanglement of sexuality from emotional avoidance
@@ -94,11 +101,13 @@ In this framework, recovery is not defined by abstinence, but by the rebuilding 
 
 Authentic intimacy is never passive and cannot be outsourced.
 It demands:
+
 - Presence 
 - Vulnerability  
 - Effortful engagement
 
 When individuals relinquish their reliance on mediated detachment, they create space for:
+
 - Emotionally reciprocal relationships
 - Embodied self-awareness
 - Sustainable internal regulation

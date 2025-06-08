@@ -1,4 +1,4 @@
-#Abstract
+## Abstract
 
 This reflective essay introduces the concept of borrowed numbness as a lens to understand compulsive pornography use, not as a pursuit of pleasure, but as a coping mechanism for emotional overwhelm. It argues that individuals often turn to porn to absorb the emotional detachment modeled by its subjects — particularly the silence, submission, and unresponsiveness of female figures — and unconsciously internalize it as relief from their own inner distress.
 

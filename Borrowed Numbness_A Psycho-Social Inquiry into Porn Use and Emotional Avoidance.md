@@ -45,7 +45,7 @@ Pornographic content offers:
 - Controlled visual environments  
 - Absence of emotional reciprocity or vulnerability
 
-Such experiences bypass the typical requirements of emotional processing.  
+Such experiences bypass the typical requirements of emotional processing. 
 Over time, this fosters external dependency for regulation and impairs the development of internal resilience.
 
 ---

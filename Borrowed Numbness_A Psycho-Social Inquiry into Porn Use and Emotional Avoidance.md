@@ -51,8 +51,10 @@ Over time, this fosters external dependency for regulation and impairs the devel
 
 Conventional narratives around porn-related shame emphasize morality or impurity. 
 However, a more accurate lens for many individuals is emotional outsourcing — the evasion of self-accountability via mediated detachment.
-Conventional framing: “I masturbated — therefore I feel shame.”
-Reframed understanding: “I used the emotional vacancy of another person as a buffer from my own distress.”
+Conventional framing:
+- “I masturbated — therefore I feel shame.”
+Reframed understanding:
+- “I used the emotional vacancy of another person as a buffer from my own distress.”
 The shame stems less from the act itself, and more from the subconscious recognition of instrumentalizing someone else's silence to escape one’s own.
 
 ---
